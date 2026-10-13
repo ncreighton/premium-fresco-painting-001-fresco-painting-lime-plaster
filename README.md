@@ -1,0 +1,2 @@
+# premium-fresco-painting-001-fresco-painting-lime-plaster
+Tired of your mural paints cracking or fading within months? True fresco requires mastering lime plaster chemistry—and without a studio-tested system, you'll waste time and materials.  This guide condenses centuries of Italian fresco tradition into a step-by-step digital blueprint. You'll learn how to mix your own lime plaster, control drying times
